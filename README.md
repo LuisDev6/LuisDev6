@@ -21,7 +21,7 @@ En esta cuenta ire subiendo mis avances de la cursada y para diciembre cuando fi
 <br>
 <span>
 <img src="https://cdn-icons-png.flaticon.com/24/753/753244.png">
-</span>
+</span>Desbloqueado!😁
 <br>
 <span>
 <img src="https://cdn-icons-png.flaticon.com/24/919/919825.png">
